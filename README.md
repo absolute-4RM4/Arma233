@@ -1,1 +1,1 @@
-Discord : SIGMAGEDON#4184
+Discord : armagedon#3775
